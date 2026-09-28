@@ -1,0 +1,1 @@
+# Solitaire-Well-Full-Version-Unlocked
